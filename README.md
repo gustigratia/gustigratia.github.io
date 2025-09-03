@@ -1,1 +1,1 @@
-# My ITSM Journey: Building My Digital Home
+# Welcome to My Digital Journey: Projects, Learning, and Growth
